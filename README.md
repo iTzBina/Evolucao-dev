@@ -8,7 +8,7 @@ Aqui estão alguns links das minhas redes Sociais:
 
 - [Facebook](https://www.facebook.com/wilson.junior.1420354/)
 - [Instagram](https://www.instagram.com/wrconsultoriatecnica_/)
-- [Whatsapp](wa.me/message/WJRVNVDY7PLHO1)
+- [Whatsapp](https://wa.me/message/WJRVNVDY7PLHO1)
 
 
 
